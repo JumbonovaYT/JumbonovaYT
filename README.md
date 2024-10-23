@@ -1,5 +1,5 @@
 - 👋 Hi, I’m jumbonova (@JumbonovaYT)
-- 👀 I’m interested in: cdding
+- 👀 I’m interested in: coding
 - 🌱 I’m currently learning: coding
 - 💞️ I’m looking to collaborate on: nothing rn
 - 📫 How to reach me: just do comments
