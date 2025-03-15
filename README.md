@@ -2,7 +2,7 @@
 - 👀 I’m interested in: coding
 - 🌱 I’m currently learning: coding
 - 💞️ I’m looking to collaborate on: nothing rn
-- 📫 How to reach me: just do comments
+- 📫 How to reach me: jumbonova on discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im alive
 
